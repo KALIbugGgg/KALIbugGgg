@@ -3,7 +3,7 @@
 <p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled562_20260929171641.png" width="100" />
 
   
-<p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled188_20260517021007.png" width="350" />
+<p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled561_20260929171017.png" width="600" />
 
 <p align="center">    </a><a href="https://github.com/BaphometAngel">ᴍʏ ᴀɴɢᴇʟ , <a href="https://kalistraw.straw.page">ꜱᴛʀᴀᴡ !
 </a>  
