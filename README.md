@@ -1,16 +1,14 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/tumblr_f9dadc2d0d67fb23c034eb25313d4619_3de17cd2_400%20(1).png" width="600" />
+<p align="center"><img src="https://file.garden/arshBdKMYgHsenuM/Untitled562_20260929171641.png" width="100" />
 
-  ![profileviews](https://komarev.com/ghpvc/?username=KalilsLost&color=red)
-
+  
 <p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled188_20260517021007.png" width="350" />
-<p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled187_20260517020922.png" width="100" />
+
 <p align="center">    </a><a href="https://github.com/BaphometAngel">ᴍʏ ᴀɴɢᴇʟ , <a href="https://kalistraw.straw.page">ꜱᴛʀᴀᴡ !
 </a>  
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled182_20260517013715.png" width="320" />
 <p align="center">୧ ‧₊˚ 🥩🦴 ⋅
-<p align="center"> <img src="https://file.garden/aGSbGubBfAqOtcQO/8C5E5A37-1A9A-41D3-80C2-4A85D43BCAEC.gif" width="300" />    
+
 <p align="center">૮₍´｡ᵔ ꈊ ᵔ｡`₎ა
 <p align="center">
 <p align="center">
